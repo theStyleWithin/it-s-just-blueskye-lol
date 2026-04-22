@@ -1,4 +1,7 @@
-> [!CAUTION]
+>https://discourse.flathub.org/t/id-like-to-request-removal-of-fluxer/12050
+https://x.com/GamehopperPlays/status/2046385520071311552?s=20
+Cool bros use Kloak
+[!CAUTION]
 > I'm repeating it again: Holy smokes, what a ride. Fluxer is taking off much earlier than I'd expected.
 >
 > I know it's hard to resist, but please wait a little longer before you dive deep into the current codebase or try to set up self-hosting. I'm aware the current stack isn't very lightweight. I'm working on making self-hosting as straightforward as possible and the development environment likewise.
