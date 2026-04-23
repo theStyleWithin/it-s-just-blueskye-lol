@@ -2,6 +2,44 @@
 https://x.com/GamehopperPlays/status/2046385520071311552?s=20
 Cool bros use Kloak https://kloak.app/ check out Kloak's terms of service and compare with Fluxer's https://kloak.app/terms obviously so much better! 
 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 [!CAUTION]
 > I'm repeating it again: Holy smokes, what a ride. Fluxer is taking off much earlier than I'd expected.
 >
